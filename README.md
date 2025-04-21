@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @lkx2004
-- 🌱 I’m currently learning in THU
+- 🌱 I’m currently learning in THSS
